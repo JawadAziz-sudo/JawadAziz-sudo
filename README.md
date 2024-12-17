@@ -2,7 +2,7 @@
 - 👀 I’m interested in DevOps
 - 🌱 I’m currently learning DevOps
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me "jawdazize96@gmail.com
+- 📫 How to reach me "jawdazize96@hotmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
